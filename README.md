@@ -34,4 +34,4 @@ Backend .NET Engineer based in Argentina with 15+ years building scalable system
 
 ---
 
-📫 [linkedin.com/in/lwainer](https://linkedin.com/in/lwainer) · Open to 100% remote opportunities
+🔗 [linkedin.com/in/lwainer](https://linkedin.com/in/lwainer) · Open to 100% remote opportunities
